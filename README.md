@@ -1,1 +1,0 @@
-# sebastian_paredes_ejercicio
